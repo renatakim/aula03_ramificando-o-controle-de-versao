@@ -30,8 +30,7 @@ Hmm, we keep this love in a photograph\
 We made these memories for ourselves\
 Where our eyes are never closing\
 Hearts were never broken\
-And time's forever frozen, still\
-\   
+And time's forever frozen, still\   
 So you can keep me\
 Inside the pocket of your ripped jeans\
 Holding me closer 'til our eyes meet\
@@ -59,4 +58,4 @@ And I won't ever let you go\
 When I'm away, I will remember how you kissed me\
 Under the lamppost back on Sixth street\
 Hearing you whisper through the phone\
-"Wait for me to come home"\
+"Wait for me to come home"
