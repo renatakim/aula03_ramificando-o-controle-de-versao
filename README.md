@@ -4,7 +4,7 @@
 
 * [Photograph - Canção de Ed Sheeran](https://github.com/renatakim/aula03_ramificando-o-controle-de-versao/blob/main/Carol.md)
 
-* [Permission to Dance - BTS](https://github.com/renatakim/aula03_ramificando-o-controle-de-versao/blob/main/Amanda.md)
+* [Permission to Dance - BTS](https://github.com/renatakim/aula03_ramificando-o-controle-de-versao/blob/main/Renata.md)
 
 
 
